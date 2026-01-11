@@ -17,7 +17,7 @@
 
 <p>💖 ➡️ <strong>【APP客户端下载】</strong> ：<a href="https://khdapp.pages.dev/">https://khdapp.pages.dev/</a></p>
 
-<p>💖 ➡️ <strong>【网友汇总的游戏在线看网站】</strong> ：<a href="https://appxiazai.pages.dev/">https://appxiazai.pages.dev/</a></p>
+<p>💖 ➡️ <strong>【网友汇总的影视在线看网站】</strong> ：<a href="https://appxiazai.pages.dev/">https://appxiazai.pages.dev/</a></p>
 
 <p>💖 ➡️ <strong>【抖音网友整理的神仙工具网站】</strong> ：<a href="https://2025gj.pages.dev/">https://2025gj.pages.dev/</a></p>
 
